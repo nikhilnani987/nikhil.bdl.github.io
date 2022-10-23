@@ -1,2 +1,13 @@
 # nikhil.bdl.github.io
 ![n5](https://user-images.githubusercontent.com/116463668/197418200-9c2631b3-4e95-4cb7-987d-e7e13ae8bdbe.jpg)
+![nani4](https://user-images.githubusercontent.com/116463668/197418458-2039e878-3571-45fd-b911-f201c90a82b7.png)
+![nani5](https://user-images.githubusercontent.com/116463668/197418459-37cc1fed-2efc-40f2-a63c-ca9a390b7cba.png)
+![nani6](https://user-images.githubusercontent.com/116463668/197418460-e6d55ce4-3dbc-4180-a9e4-29f32fce3a87.png)
+![SREE2](https://user-images.githubusercontent.com/116463668/197418463-19df5dc6-2c22-4f15-8946-88023a1fbcaf.png)
+![SREE3](https://user-images.githubusercontent.com/116463668/197418470-5e0c6794-3960-411a-89a7-9b3bfd49b616.jpg)
+![123](https://user-images.githubusercontent.com/116463668/197418475-049a3f74-67a8-4d82-86bd-7015a55841c2.jpg)
+![cmd_0](https://user-images.githubusercontent.com/116463668/197418477-fa33cd09-a285-43e5-a2fa-13935f8e3f00.png)
+![n5](https://user-images.githubusercontent.com/116463668/197418478-2142e807-6ffc-4269-9242-b11479a9ef41.jpg)
+![nani1](https://user-images.githubusercontent.com/116463668/197418479-151bf635-e3fe-4778-988c-6cac3b4e54a2.png)
+![nani2](https://user-images.githubusercontent.com/116463668/197418480-e205619e-3d45-4a05-836d-f8259420c568.png)
+![nani3](https://user-images.githubusercontent.com/116463668/197418481-3358a093-4c4f-4551-ab6a-d394e248c21a.png)
